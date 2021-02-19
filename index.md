@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to a new world
 
-I'm glad you are here. I plan to talk about ...
+I'm glad you are here. Hope you are ready to have fun 
